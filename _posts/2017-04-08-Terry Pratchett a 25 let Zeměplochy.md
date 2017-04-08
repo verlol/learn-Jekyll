@@ -1,4 +1,4 @@
-﻿#Terry Pratchett: 25 let od vytvoření Zeměplochy
+﻿Terry Pratchett: 25 let od vytvoření Zeměplochy
 
 
 
